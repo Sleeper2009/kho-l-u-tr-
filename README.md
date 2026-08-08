@@ -1,1 +1,1 @@
-# kho-l-u-tr-
+# kho lưu trữ
